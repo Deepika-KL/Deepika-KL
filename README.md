@@ -1,0 +1,7 @@
+- 👋 Hello, I’m Deepika-KL
+- 👀 I’m a passionate Data Scientist
+- 🌱 I’m currently learning Artificial Intelligence at Datamites
+- 💞️ currently doing internship at Rubixe.
+- 📫 deepikaakl09@gmail.com
+- www.linkedin.com/in/deepika-kl
+- 😄 Pronouns:she/her
